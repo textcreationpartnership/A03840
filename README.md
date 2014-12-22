@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE FLYTTING BETWIXT MONTGOMERIE AND POLWART.Newlie corrected and ammended.EDINBVRGH.Printed by the 
+
 1. TO THE READER.
 
 #####Body#####
